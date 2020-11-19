@@ -1,0 +1,1 @@
+to make pasta first we have to boil the pasta until it becomes soft , put  the pasta in a differennt container and let it cool down.after it cools down put the pasta back on the stove and add white sauce or red sauce.now we need to add the vegetables. add capcicum,corn,basil,chilli flakes,oregano and some pepper.

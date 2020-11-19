@@ -1,0 +1,1 @@
+the ingrediants to make a pasta are boiled water,red sauce or white sauce ,capcicum,corn,olives,basil,oregano,chilli flakes,pepper.
